@@ -1,0 +1,1 @@
+once upon a time, there was a guy named richard, and he was rich. 
