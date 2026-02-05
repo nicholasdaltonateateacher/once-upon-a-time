@@ -3,4 +3,4 @@ richard was so rich that he had his own private island all for himself.
 That private island was names cayo perico and he threw a big party.
 while at the party, rich was caught cheating on roblox arsenal.
 After he got caught cheating he got severly spanked by kaniel marsh.
-after this, rich got put in jail and was spanked everyday.
+and after this, he got put in room and sat there forever.
